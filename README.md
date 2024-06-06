@@ -5,28 +5,25 @@
 ### [点击下载yandex浏览器](https://browser.yandex.com/)
 
 ### 吃瓜曝料网地址发布页
-### 【地址1】：https://sehejiumago77.buzz
+### 【地址1】：https://sejiu77.buzz
 
 ### 淫窝地址发布页
-### 【地址1】：https://yinwogo32.buzz
+### 【地址1】：https://woyinlehaokx.buzz
 
 ### 十八禁区地址发布页
 ### 【地址1】：https://shibajinqugo31.buzz
 
 ### 男人社区地址发布页
-### 【地址1】：https://nanrenshequ.buzz
+### 【地址1】：https://nanrenshequ8.buzz
 
 ### 狼友福利地址发布页
 ### 【地址1】：https://langyoufl2.buzz
 
 ### 萝莉社区地址发布页
-### 【地址1】：https://luolishequ2.buzz
-
-### 宅男仓库地址发布页
-### 【地址1】：https://zhainancangku6.buzz
+### 【地址1】：https://luolishequ20.buzz
 
 ### 秘密视频地址发布页
-### 【地址1】：https://mimishiping.buzz
+### 【地址1】：https://mimishiping7.buzz
 
 ### 【防迷路联系邮箱】：zuixindizhi@proton.me
 
